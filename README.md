@@ -1,3 +1,3 @@
-This is the venting place for my idealistic and absurd mind.
+The rope is to store my life essays
 
-"我要快乐，不必正常。"
+> This is the venting place for my idealistic and absurd mind.
